@@ -1,5 +1,5 @@
 ## Plakaty przygotwane na zlecenie dla NZOZ Gabinet Lekarza Rodzinnego Rafał Kacorzyka. Zostały powieszone w tym ośrodku oraz w pobliskiej szkole podstawowej.  
-### Wykonane w Adobe Fresco 
+### Plakaty Wykonane w Adobe Fresco 
 
 ## Higiena Cyfrowa
 ![Higiena cyfrowa](https://github.com/Julia11235/Posters/assets/120017937/b40886c6-6669-4b77-86b2-b7e88797aff1)
