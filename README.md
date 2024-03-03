@@ -1,4 +1,4 @@
-## Plakaty przygotwane na zlecenie dla Ośrodka Zdrowia i Szkoły  
+## Plakaty przygotwane na zlecenie dla NZOZ Gabinet Lekarza Rodzinnego Rafał Kacorzyka. Zostały powieszone w tym ośrodku oraz w pobliskiej szkole podstawowej.  
 ### Wykonane w Adobe Fresco
 
 ## Higiena Cyfrowa
